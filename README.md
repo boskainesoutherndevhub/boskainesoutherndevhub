@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @boskainesoutherndevhub
-- 👀 I’m interested in gaining my boskaine account back
+- 👀 I’m interested in gaining my boskaine accounts back which are locked within Microsoft and Google 
 - 💞️ I’m looking to collaborate on any projects that will expand my knowledge 
 - 📫 How to reach me westsideatlantagee974@gmail.com
 - 😄 Pronouns: ...
